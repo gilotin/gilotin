@@ -6,8 +6,6 @@
 
 💞️ I’m looking to collaborate on everything interesting. Practice is the best way to learn.
 
-📫 If you want to contact me, just write me an e-mail : toshevnikolay@gmail.com.
-
 ⚡ Hobbies : Playing games, writing, cooking and more!  
 
 <!---
